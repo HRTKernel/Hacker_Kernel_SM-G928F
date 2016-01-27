@@ -1,1 +1,0 @@
-# Hacker_Kernel_SM-G928F
